@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FrancescoMarcolini
 - 👀 I’m interested in particle accelerator physics
-- 📫 How to reach me: francesco.marcolini@etu-upsaclay.fr
+- 📫 How to reach me: francesco.marcolini00@gmail.com
 - ⚡ Fun fact: playing guitar is my greatest passion
 
 <!---
